@@ -1,1 +1,1 @@
-# galaxyboyz14.github.io
+# School14.github.io
